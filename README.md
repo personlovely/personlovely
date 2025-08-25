@@ -3,3 +3,5 @@
                 ──── ↭༒↭ ────
  • Some people are copying my entire skin and adding a nicer color          
 •I hope you don't misunderstand i copied them because they are prettier!!?
+
+• Reminder!: dude don't try to copy me we are not that close(￣▽￣)
