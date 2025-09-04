@@ -6,8 +6,6 @@
 
 • Reminder!: dude don't try to copy me we are not that close(￣▽￣)
 
-• use many colors and can not be more bold.
-
-• I always want to support people who want to perfect their foals^_________^
+• use many styles many colors and can not be more bold.^_________^
 
 • Thanks for reading!
