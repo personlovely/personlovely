@@ -5,3 +5,9 @@
 •I hope you don't misunderstand i copied them because they are prettier!!?
 
 • Reminder!: dude don't try to copy me we are not that close(￣▽￣)
+
+• use many colors and can not be more bold.
+
+• I always want to support people who want to perfect their foals^_________^
+
+• Thanks for reading!
