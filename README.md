@@ -6,6 +6,4 @@
 
 • Reminder!: dude don't try to copy me we are not that close(￣▽￣)
 
-• use many styles many colors and can not be more bold.^_________^
 
-• Thanks for reading!
