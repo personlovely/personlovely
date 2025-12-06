@@ -1,4 +1,4 @@
-![/🐟/counter on GitHub](https://komarev.com/ghpvc/?username=personlovely&color=FEBB8E)![tumblr_13]( https://github.com/personlovely/personlovely/blob/f6c0246995cab51d9f9c38e9f4cf7eb15874f860/6708f9c7a37b31fe1670b1425fb471ca.gif)
+![/🐟/counter on GitHub](https://komarev.com/ghpvc/?username=personlovely&color=FEBB8E&label=🐟)![tumblr_13]( https://github.com/personlovely/personlovely/blob/f6c0246995cab51d9f9c38e9f4cf7eb15874f860/6708f9c7a37b31fe1670b1425fb471ca.gif)
  
            
  
